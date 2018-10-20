@@ -1,1 +1,0 @@
-# Daenerys-Targaryen-for-President
